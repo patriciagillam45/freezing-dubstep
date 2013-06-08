@@ -1,0 +1,4 @@
+freezing-dubstep
+================
+
+alert! it is bad news that I found out from Google when I signed in for ck up email alot so i clean up but there has been update talk about packages bec they refuse to send to email patriciagillam45 @yahoo.com enter my patriciagillam1467@gmail.com but tried to set up mail.yahoo.mailcom for patriciagillam45@yahoo.com u know mine pw so there are alot mgs that i press button starred yellow light ck up inbox ,starred and spams inboxes and found out alert norpleygoogle mail send me talk about facebook has been created www.https.// facebook.com@patricia.gillam.9 is not right  suppose to be correct mine patricia.gillam1@facebook.com and name is correct "Patricia Gillam" someone stole my acct /photo ID and name user. send u ck on Google (patriciagillam1467@gmail.com) pw without (us+ 1) use my nbr pw. using blue google inbox color blue inside with one letter g (white
